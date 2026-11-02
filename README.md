@@ -1,0 +1,2 @@
+# Talyp-dolandyrma
+Yhlas
